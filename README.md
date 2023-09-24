@@ -29,6 +29,5 @@ Here are some ideas to get you started:
 
 📫 How to reach me: You can connect with me on [LinkedIn](www.linkedin.com/in/neto-onyiaji) or send me an email at onyiajineto@gmail.com.
 
-😄 Pronouns: He/Him
 
 ⚡ Fun fact: I'm passionate about volunteering and enjoy giving back to the community through data-driven initiatives. Let's collaborate and make data work for good! 🚀
